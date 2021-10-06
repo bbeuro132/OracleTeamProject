@@ -26,6 +26,5 @@
 
 ![슬라이드12](https://user-images.githubusercontent.com/81130257/136121851-43743abd-af97-4b2b-9db2-4ba34718855d.JPG)
 
-![슬라이드13](https://user-images.githubusercontent.com/81130257/136121854-4e76e313-7eac-4679-bd7f-7f8024cc8fcc.JPG)
 
 
